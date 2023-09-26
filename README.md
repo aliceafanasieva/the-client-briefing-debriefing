@@ -1,3 +1,8 @@
+# Briefing
+De briefing werd gehouden om 11:00 op maandag 25 September. Bij de briefing was de opdrachtgever niet direct aanwezig, maar de opdrachtgever heeft voor ons een uitgebreid voicebericht gelaten waar onder andere werd verteld over de afkomst van het bedrijf De Hallen, de doelen die het bedrijf nastreeft en wat ze willen bereiken. Er werd verteld over de opdracht, wat er wordt verwacht van het product en wat de bedoeling daarvan is. 
+
+Verder zal ik de briefing in onderstaande debriefing samenvatten. 
+
 # Debriefing 
 Met de informatie die wij op 25-9-2023 hebben gekregen en begrepen hebben wij de eerste versie gemaakt van onze debriefing. Hierin staat alle informatie en vragen die we nog hadden.  
 ### Contactgegevens 
